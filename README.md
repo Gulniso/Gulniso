@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm a new! 
+I'm a new! 🌱 I’m currently learning 
 
 
 
