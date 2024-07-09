@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm a new beginner! 
+I'm a new! 
 
 
 
